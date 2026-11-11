@@ -1,1 +1,0 @@
-# riddhima-capstone-projects
